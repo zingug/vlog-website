@@ -2,7 +2,7 @@
 
 ![An image of a cookie](https://picsum.photos/200/300)
 
-This recipe is from my dad and they are a favorite among friends and family. The secret ingredient is the coconut! _Be warned_, these will fly off of the plate!
+This recipe is from my mum and they are a favorite among friends and family. The secret ingredient is the coconut! _Be warned_, these will be great on the plate!
 
 ## Ingredients
 * Butter
